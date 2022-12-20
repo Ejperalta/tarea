@@ -22,3 +22,4 @@
 ![GL_2 1_EF_RECORTADORES_NRC_10076_Y_9848correccion _page-0021](https://user-images.githubusercontent.com/105829461/208719758-a768d0a7-d99d-491c-a2df-4cf4d63b2d3a.jpg)
 ![GL_2 1_EF_RECORTADORES_NRC_10076_Y_9848correccion _page-0022](https://user-images.githubusercontent.com/105829461/208719767-8093d2e4-af9a-4216-8b39-13178140c3f3.jpg)
 ![GL_2 1_EF_RECORTADORES_NRC_10076_Y_9848correccion _page-0023](https://user-images.githubusercontent.com/105829461/208719780-ecace24e-5dbd-44a7-8658-12b6905b72ea.jpg)
+![GL_2 1_EF_RECORTADORES_NRC_10076_Y_9848correccion _page-0004](https://user-images.githubusercontent.com/105829461/208720646-a3c1c114-2402-4c8d-b033-0f3fcf29d8e4.jpg)
